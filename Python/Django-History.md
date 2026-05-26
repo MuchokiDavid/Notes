@@ -1,4 +1,3 @@
-```markdown
 # Mastering the Art of Django Simple History
 
 ## Introduction
