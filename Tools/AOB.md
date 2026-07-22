@@ -1,1 +1,0 @@
-Hey, I’ve noticed things have been a bit quiet between us lately. No pressure at all to reply to this, but I really like you and value you. If you need some space, I totally get it, but my door is always open when you're ready to chat
